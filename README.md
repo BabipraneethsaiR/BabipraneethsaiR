@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BabipraneethsaiR
 - 👀 I’m interested in Full stack development
 - 🌱 I’m currently learning web development
-- 💞️ I’m looking to collaborate on internship and project throug Company
+- 💞️ I’m looking to collaborate for internship through my technical skills 
 - 📫 How to reach me rajavarapubabipraneethsai99@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
